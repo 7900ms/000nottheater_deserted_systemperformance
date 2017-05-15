@@ -17,4 +17,8 @@ quora music band why
 Only Love _ Trademark
 ```
 
+= = =
+
+[poetic lyrics about love](https://pop.inquirer.net/2016/04/16-pop-songs-with-lyrics-that-work-as-poetry/)
+
 -
