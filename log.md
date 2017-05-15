@@ -21,4 +21,10 @@ Only Love _ Trademark
 
 [poetic lyrics about love](https://pop.inquirer.net/2016/04/16-pop-songs-with-lyrics-that-work-as-poetry/)
 
+诗歌一般的歌词：
+要看就看点儿好的，诗歌一般的歌词，不要那种胡咧咧的
+
+钢琴演奏家：
+要看就看点儿好的，一般会弹钢琴的歌手 会比较好，不要那种“偶像歌手/劲爆乐队”
+
 -
